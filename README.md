@@ -1,0 +1,7 @@
+-  Hi, I’m @1970ferrari512m. You may call me "SWAGGER", "SW4GG3R", or "Demo". (Note I am NOT the same people behind the actual accounts with those names on Github)
+-  I’m interested in automotive media and cars as a whole.
+-  I’m currently learning a lot of stuff as since I am still attending school (but still as of age to be on Github)
+-  How to reach me:
+-  1970ferrari512m (discord)
+-  goofybombs (instagram)
+-  @polarizeddemo (twitter)
